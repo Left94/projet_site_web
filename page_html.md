@@ -53,9 +53,6 @@ Le poisson nageur est une imitation de petit poisson. Là aussi, ce sont les vib
 Le leurre souple est un leurre en plastique plus ou moins souple comme l'indique son nom: il existe une multitude de ces leurres. Ce sont souvent des leurres peu coûteux, cela permet ainsi d'en acheter des différents. Ils se révèlent assez polyvalents et efficaces lorsque les conditions sont plus difficiles qu'à l'ordinaire, comme lorsque les poissons sont habitués aux poissons-nageurs.<br/>
 
 
-Divers leurres pour la pêche à la traîne
-Des types variés de cuillères volumineuses étant utilisées souvent pour les gros brochets. Par leurs tailles, formes ou couleurs, elles sont adaptées aux espèces, à la luminosité, au type de cours d'eau. Par exemple, en eau trouble, des couleurs lumineuses telle que l'argent sont préférées à la couleur cuivre tachetée de rouge utilisée en torrent de montagne.<br/> Le noir est utilisé quand on voit le fond du cours d'eau. La rotation de la cuillère produit dans l'eau des vibrations s'apparentant aux battements d'ailes d'une mouche s'échappant de l'eau. Ainsi le « jeu » du moulinet est crucial car il conditionne l'efficacité du leurre. Il peut être rapide en été (les poissons sont plus vifs qu'en hiver), ou lent (en hiver, les poissons sont engourdis par le froid donc ne vont pas se déplacer sur beaucoup de terrain), ou saccadé.
-
 </p>
 
 
